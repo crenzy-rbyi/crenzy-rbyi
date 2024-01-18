@@ -4,6 +4,6 @@ KENNY(thats *me*)⠀![03E737y](https://github.com/crenzy-rbyi/crenzy-rbyi/assets
 
 > ![08e2be73](https://github.com/crenzy-rbyi/crenzy-rbyi/assets/156772579/c8a8bc1e-bc3c-432e-8c67-72c9708004e4) ★ ![d263ebe4](https://github.com/crenzy-rbyi/crenzy-rbyi/assets/156772579/825c9b88-f398-4fc8-a5c0-dde4eae6088c)
 
-Artist &&⠀**CRENNY CEO**
+Artist  &&⠀**CRENNY CEO**
 
 i love my girlfriend

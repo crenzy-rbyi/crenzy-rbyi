@@ -2,6 +2,6 @@ KENNY(thats *me*)⠀![03E737y](https://github.com/crenzy-rbyi/crenzy-rbyi/assets
 
 5teen⠀.⠀**INFP**⠀![OLnUL5v](https://github.com/crenzy-rbyi/crenzy-rbyi/assets/156772579/dc4ad98d-41c5-4ba5-9dbf-fa23f300a529)⠀Autistic
 
-![d263ebe4](https://github.com/crenzy-rbyi/crenzy-rbyi/assets/156772579/c8b7ba0f-c15b-4ce7-81f3-e2ee43b7b5b8) ![08e2be73](https://github.com/crenzy-rbyi/crenzy-rbyi/assets/156772579/c8a8bc1e-bc3c-432e-8c67-72c9708004e4) ★ Artist
+>> ![08e2be73](https://github.com/crenzy-rbyi/crenzy-rbyi/assets/156772579/c8a8bc1e-bc3c-432e-8c67-72c9708004e4) ★ Artist
 
 &&⠀**CRENNY CEO**

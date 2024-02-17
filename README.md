@@ -6,4 +6,4 @@ KENNY(thats *me*)⠀![03E737y](https://github.com/crenzy-rbyi/crenzy-rbyi/assets
 
 Artist  &&⠀**CRENNY CEO**
 
-i love my girlfriend
+i love my platonic pookies

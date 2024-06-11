@@ -6,7 +6,6 @@ INFP-T
 
 I LOVE MY GIRLFRIEND <3
 
-![](https://64.media.tumblr.com/70964092b48871d8c60f243b7c674351/54ea6d6ce28fd60b-7c/s1280x1920/334df1bdd936bca52462c0c07c5844ff4cb673e4.pnj)
-
+![](https://64.media.tumblr.com/c95b41a29a2b6e2636cc8fd85ed695e3/a2eba088852df12d-b7/s400x600/28ee29f0096a63e546f3d5cf19ed11459542110b.pnj)
 
 ![](https://64.media.tumblr.com/2cb95516ae69da4302f643a3b9909d8f/7226f282dbc93e1c-79/s500x750/f5b43d59a9d0af798246cdaee704f8eed3f756d8.gifv)

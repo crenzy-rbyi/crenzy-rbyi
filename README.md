@@ -1,8 +1,10 @@
-🪐 ── Welcome.
+── Welcome :3
 
 friendlist is always allowed to c+h.
 
-I mainly interact through whispers, I get anxious easily
+🪐 I mainly interact through whispers, I get anxious easily
+
+nonveral when anxious/down . hypersensitivity
 
 ![](https://64.media.tumblr.com/13f2701b9f1754443bdf53a98fa35ffa/d77823ffd65a1ac8-99/s250x400/ee923283b03cb095e36f60522d48fd30329278d8.gifv)   . ⭑ ⋆ ｡ ˚
 

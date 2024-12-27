@@ -2,7 +2,7 @@
 
 friendlist is always allowed to c+h.
 
-🪐 I mainly interact through whispers, I get anxious easily
+🪐 I mainly interact through whispers, I get anxious with having to start interaction
 
 nonveral when anxious/down . hypersensitivity
 

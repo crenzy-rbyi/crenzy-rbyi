@@ -4,7 +4,8 @@ friendlist is always allowed to c+h.
 
 🪐 I mainly interact through whispers; I get anxious with having to start conversation.
 
-hypersensitivity . i fork my friends repositories/people i wish i were friends with
+hypersensitivity . i fork my friends repositories/people i wish i were friends with.
+     will remove your repositories if asked :3
 
 ![](https://64.media.tumblr.com/13f2701b9f1754443bdf53a98fa35ffa/d77823ffd65a1ac8-99/s250x400/ee923283b03cb095e36f60522d48fd30329278d8.gifv)  ![](https://64.media.tumblr.com/a97ab35317105eb71d67210ac267924b/291b57fc1bf1e0d5-80/s75x75_c1/0211031662745fcc51d8a4a59c2cd361f2e82af6.gifv) . ⭑ ⋆ ｡ ˚ ⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/d958d57919c5a894e17737f5dc160f4c/7bf3b12a21e14e24-c4/s250x400/f5b00bf50f4ebeabd489428cbc01c96b432c00f7.gifv)
 

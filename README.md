@@ -8,7 +8,7 @@ kenny / marvus . they-it
    <p align="center"> 
 c+h welcomed to people on my friends list. or friends of friends.
                       <p align="center">  hypersensitivity & autistic. will only approach if comfortable or wanted.
-   <p align="center"> dandys world fandom dniuf
+   <p align="center"> dandys world fandom dniuf / dniuid
      
 ![](https://64.media.tumblr.com/be5b2a1a62337c77fe45654af8371caf/225160babf168c0a-f8/s1280x1920/7744707f9ea17c1dc4fe3b6a598431bba380f1a6.pnj)
 

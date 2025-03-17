@@ -9,7 +9,7 @@ c+h welcomed to people on my friends list. or friends of friends.
                       
    <p align="center"> dandys world fandom dniuf / dniuid
      
-![](https://64.media.tumblr.com/be5b2a1a62337c77fe45654af8371caf/225160babf168c0a-f8/s1280x1920/7744707f9ea17c1dc4fe3b6a598431bba380f1a6.pnj)
+![]([https://64.media.tumblr.com/be5b2a1a62337c77fe45654af8371caf/225160babf168c0a-f8/s1280x1920/7744707f9ea17c1dc4fe3b6a598431bba380f1a6.pnj](https://64.media.tumblr.com/4cf06275eb133ebb4f572b02e197a69d/225160babf168c0a-35/s250x400/f77fddc5bf6deaa28afef823ced4d97c46b0a541.pnj))
 
 
 ![](https://64.media.tumblr.com/8cc546b1797fa43b84268dc57daa9262/d3d1289e80b156fa-8c/s2048x3072/97f12a0b3897ed4b909a48ec432e39712600c62a.pnj)

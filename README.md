@@ -6,7 +6,6 @@ kenny / marvus . they-it
                       <p align="center">  check links.
 
 <p align="center">
-  
   ![](https://64.media.tumblr.com/80d12f0d6061b5f94dde66d8615f6f67/dac59b11406334cf-2b/s75x75_c1/003fb61122df50fe258c82077cf189553a9d23b1.gifv)                      
 
    <p align="center"> 

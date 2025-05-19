@@ -7,6 +7,6 @@
   
 c+h welcomed to people on my friends list. or friends of friends.
                       
-   <p align="center"> dandys world and hellpark fandom dniuf / dniuid
+   <p align="center"> dandys world and homestuck fandom dniuf / dniuid
      
 ![](https://64.media.tumblr.com/4cf06275eb133ebb4f572b02e197a69d/225160babf168c0a-35/s1280x1920/d0d11adaece00b5c504fb7021069a634d549a264.pnj)

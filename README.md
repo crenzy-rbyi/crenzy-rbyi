@@ -5,4 +5,4 @@ c+h welcomed to people on my friends list. or friends of friends.
    <p align="center"> dandys world and homestuck fandom dniuf / dniuid
      
 <p align="center"> 
-    ![](https://files.catbox.moe/gxwjyl.png)
+    <img= https://files.catbox.moe/gxwjyl.png />

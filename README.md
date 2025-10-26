@@ -4,5 +4,6 @@ c+h welcomed to people on my friends list. or friends of friends.
                       
    <p align="center"> dandys world, gorillaz and homestuck fandom dniuf / dniuid
      
-<p align="center"> 
-    <img src="https://files.catbox.moe/gxwjyl.png" />
+
+
+very boring profile

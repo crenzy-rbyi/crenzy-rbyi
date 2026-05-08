@@ -7,7 +7,7 @@
 off and on pony town
 
 
-autistic + hypersensitive ,, i only get on the game when im wanted
+autistic + anxious ,, i only get on the game when im wanted
 
 
 dw + gorillaz fandom dniuid / dniuf

@@ -2,7 +2,8 @@
     
 <img align="left" src="[https://files.catbox.moe/ndnwgp.png](https://files.catbox.moe/3fzn3a.webp)">　
 
-<h6 align>   
+<h6 align>  
+    
 i dont really give a damn abt how my github looks im too #lazy
 
 

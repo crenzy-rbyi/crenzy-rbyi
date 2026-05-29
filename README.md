@@ -10,4 +10,10 @@ off and on pony town
 autistic + anxious ,, i only get on the game when im wanted
 
 
-dw + gorillaz fandom dniuid / dniuf
+sp + gorillaz fandom dniuid / dniuf
+
+
+resident evil fandom i beg you to interact with me, i need re friends
+
+
+luis serra yume

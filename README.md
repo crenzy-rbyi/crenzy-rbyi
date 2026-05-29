@@ -12,6 +12,7 @@ autistic + anxious ,, i only get on the game when im wanted
 
 sp + gorillaz fandom dniuid / dniuf
 
+۶ৎ
 
 resident evil fandom i beg you to interact with me, i need re friends
 

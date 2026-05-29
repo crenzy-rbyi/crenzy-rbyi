@@ -27,4 +27,4 @@ luis serra yume
 ۶ৎ
 
 sign 
-https://thecrennyceo.atabook.org/
+[ata](https://thecrennyceo.atabook.org/)
